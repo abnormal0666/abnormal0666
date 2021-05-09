@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @thecobraproject
+- 👋 Hi, I’m abnormal aka microchip aka skinny penis
 - 👀 I’m interested in: Making Shitty Discord Bots
 - 🌱 I’m currently learnin: C#
 - 💞️ I’m looking to collaborate on: Nothing

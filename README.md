@@ -1,4 +1,4 @@
-- 👋 Hi, I’m abnormal aka microchip aka skinny penis
+- 👋 Hi, I’m abnormal aka 𝖆𝖇𝖓𝖔𝖗𝖒𝖆𝖑#0666 on the cord
 - 👀 I’m interested in: Making Shitty Discord Bots
 - 🌱 I’m currently learning: C#
 - 💞️ I’m looking to collaborate on: Nothing
